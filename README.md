@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @YuliaPrivate
 - 👀 I’m interested in dating with boys
 - 📫 How to reach me https://beacons.ai/girlsmee
-- It`s my profile - You can click the Preview link to take a look at your changes.
+- It`s my profile - https://beacons.ai/girlsmee
